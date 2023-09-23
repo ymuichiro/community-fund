@@ -35,7 +35,8 @@
 
 上記のような活動、効果を通じて、Symbol の価値向上に貢献していきます。ディスカッションへの参加を歓迎します。
 
-Symbol/Nem Marketing Japan
+Symbol/Nem Marketing Japan<br>
+DAOvance<br>
 
 https://discord.gg/TT2tvxFfN4<br>
 https://symbol-community.com<br>
